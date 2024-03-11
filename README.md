@@ -1,0 +1,2 @@
+# XCN
+TRUSTWALLET
